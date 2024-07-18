@@ -68,6 +68,21 @@ issues 中其他人提供的下载地址。如果有好的资源，希望大家�
 
 [百度网盘 看起来很完整](https://github.com/PetalsOnaWet/lizhi/issues/22#issue-509683891)
 
+# 广告时间 
+
+<a href="https://hostinger.sjv.io/xk76Rx" target="_top">hostinger 很不错的vps我正在使用 可以放100个网站</a>
+
+<a href="https://namecheap.pxf.io/PyXNeR" target="_top">namecheap 域名注册 最便宜的域名 </a>
+
+<a href="https://digitalocean.pxf.io/xkDrAk" target="_top">可以白嫖200$ 遗憾的是只能一个月 </a>
+
+
+<a href="https://www.anrdoezrs.net/click-100985796-15699315" target="_top">Wordpress 综合插件:Managed WordPress Hosting + Elementor Website Builder +Free Add-Ons + 24/7 Support</a>
+
+<a href="https://www.tkqlhce.com/click-100985796-14349300" target="_top">好用的梯子，ExpressVPN,30天退款，懂的都懂，ExpressVPN</a>
+
+<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">NordPass 密码管理器</a>
+
 
 # 目录
 
