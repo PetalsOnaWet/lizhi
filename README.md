@@ -15,13 +15,10 @@
 
 喜欢的话可以 star 分享 以及赞赏~
 
-trc20地址
+可以请我喝杯咖啡呀
 
-<img src="trc.jpeg" width = 40% height = 30% />
+<img src="zanshang.jpg" width = 40% height = 30% />
 
-Doge 币地址
-
-<img src="doge.jpeg" width = 40% height = 30% />
 
 # 下载地址
 
