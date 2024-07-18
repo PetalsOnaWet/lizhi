@@ -1,5 +1,5 @@
-# 李志牛逼
-![李志牛逼](lizhi.jpeg)
+# 李志歌曲大全
+![李志歌曲大全](lizhi.jpeg)
 
 
 互联网上整合的李志的歌曲,应该是比较全的版本
@@ -34,15 +34,8 @@ https://n802.com/dir/29639387-40996593-54c6fe
 
 ## Google Drive
 
-https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=sharing
+https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
 
-https://drive.google.com/drive/folders/1mL3I4JgEc9EYssJhBdNWfWUeVIeg_NUv
-
-## OneDrive
-
-https://1drv.ms/f/s!AtUSSjCEGvEubhp5Ds0g19-QQ94
-
-目前只可以按照目录进入相应文件夹单个文件下载
 
 如果还没有满意的 可以去这里找一下
 
