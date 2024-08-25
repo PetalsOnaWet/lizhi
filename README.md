@@ -19,48 +19,6 @@
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
-
-# 下载地址
-
-## 直接下载地址
-
-https://go.txca.ml/
-
-感谢[@Chaaoo](https://github.com/Chaaoo) 提供
-
-## 城通网盘
-
-https://n802.com/dir/29639387-40996593-54c6fe
-
-## Google Drive
-
-https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
-
-
-如果还没有满意的 可以去这里找一下
-
-https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
-
-##
-
-# 关于版权问题
-
-版权全部归于李志先生所有，本人仅从互联网搜集资源进行合并整理
-
-李志先生及其团队 可以随时联系本人进行删除
-
-# todo
-
-统计缺失资源，然后去发掘，所以期望有缺失资源的尽可能在issues提供给我
-
-# 其他资源
-
-issues 中其他人提供的下载地址。如果有好的资源，希望大家不吝分享。谢谢~
-
-[部分曲目 CD 抓轨，百度网盘分享](https://github.com/PetalsOnaWet/lizhi/issues/23#issue-523931787)
-
-[百度网盘 看起来很完整](https://github.com/PetalsOnaWet/lizhi/issues/22#issue-509683891)
-
 # 广告时间 
 
 <a href="https://hostinger.sjv.io/xk76Rx" target="_top">hostinger 很不错的vps我正在使用 可以放100个网站</a>
@@ -75,6 +33,43 @@ issues 中其他人提供的下载地址。如果有好的资源，希望大家�
 <a href="https://www.tkqlhce.com/click-100985796-14349300" target="_top">好用的梯子，ExpressVPN,30天退款，懂的都懂，ExpressVPN</a>
 
 <a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">NordPass 密码管理器</a>
+
+# 下载地址
+
+## Google Drive
+
+https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
+
+
+## 城通网盘
+
+https://n802.com/dir/29639387-40996593-54c6fe
+
+
+
+如果还没有满意的 可以去这里找一下
+
+https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
+
+##
+
+# 关于版权问题
+
+版权全部归于李志先生所有，本人仅从互联网搜集资源进行合并整理
+
+李志先生及其团队 可以随时联系本人进行删除
+
+
+
+# 其他资源
+
+issues 中其他人提供的下载地址。如果有好的资源，希望大家不吝分享。谢谢~
+
+[部分曲目 CD 抓轨，百度网盘分享](https://github.com/PetalsOnaWet/lizhi/issues/23#issue-523931787)
+
+[百度网盘 看起来很完整](https://github.com/PetalsOnaWet/lizhi/issues/22#issue-509683891)
+
+
 
 
 # 目录
