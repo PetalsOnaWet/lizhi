@@ -4,7 +4,11 @@
 
 互联网上整合的李志的歌曲,应该是比较全的版本
 
-[李志粉丝群](https://t.me/lizhiniub）
+
+[李志粉丝群](https://t.me/lizhiniub)
+
+https://t.me/lizhiniub
+
 格式请自行转换
 
 如果有小伙伴不辞辛苦做成磁力请共享哦。
