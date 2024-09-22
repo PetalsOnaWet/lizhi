@@ -19,6 +19,15 @@
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
+这里有全网最全资源
+![image](https://github.com/user-attachments/assets/401d396c-9204-410c-be3d-ea9f6f91bee7)
+
+
+【腾讯文档】美剧■经典影视合集+全网各种资源【持续更新建议收藏分享】.xlsx  
+[点击查看](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)  
+
+更多资源请访问：[免费网盘资源分享](https://wangpan.online)
+
 # 广告时间 
 
 <a href="https://hostinger.sjv.io/xk76Rx" target="_top">hostinger 很不错的vps我正在使用 可以放100个网站</a>
