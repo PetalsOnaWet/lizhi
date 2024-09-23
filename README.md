@@ -2,7 +2,7 @@
 ![李志歌曲大全](lizhi.jpeg)
 
 
-互联网上整合的李志的歌曲,应该是比较全的版本
+互联网上整合的李志的歌曲资源,应该是比较全的版本
 
 
 [李志粉丝群](https://t.me/lizhiniub)
@@ -23,14 +23,6 @@ https://t.me/lizhiniub
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
-这里有全网最全资源
-![image](https://github.com/user-attachments/assets/401d396c-9204-410c-be3d-ea9f6f91bee7)
-
-
-【腾讯文档】美剧■经典影视合集+全网各种资源【持续更新建议收藏分享】.xlsx  
-[点击查看](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)  
-
-更多资源请访问：[免费网盘资源分享](https://wangpan.online)
 
 # 广告时间 
 
@@ -48,7 +40,7 @@ https://t.me/lizhiniub
 <a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">NordPass 密码管理器</a>
 
 # 下载地址
-## 夸克网盘
+## 李志的歌曲夸克网盘资源
 
 这部分一些禁区 大概20个文件 实在分享不出来，也不能整体打zip包 不然不让分享。禁曲只能在谷歌云盘找了。这个链接挂了 及时通知我。我会立刻想办法补
 
@@ -56,12 +48,12 @@ https://t.me/lizhiniub
 
 链接：https://pan.quark.cn/s/03f22714622d
 
-## Google Drive
+## 李志的歌曲Google Drive 资源
 
 https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
 
 
-## 城通网盘
+## 李志的歌曲 城通网盘资源 （可能和谐了 谁验证下告诉我
 
 https://n802.com/dir/29639387-40996593-54c6fe
 
@@ -81,18 +73,23 @@ https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 
 
 
-# 其他资源
+# 其他网盘资源
 
-issues 中其他人提供的下载地址。如果有好的资源，希望大家不吝分享。谢谢~
-
-[部分曲目 CD 抓轨，百度网盘分享](https://github.com/PetalsOnaWet/lizhi/issues/23#issue-523931787)
-
-[百度网盘 看起来很完整](https://github.com/PetalsOnaWet/lizhi/issues/22#issue-509683891)
+我整理了一部分全网资源，包括美剧/短剧/电影/电视剧/小说/书籍/破解软件/考研考公资料/动漫动画这些网盘资源，需要的自取
 
 
+![image](https://github.com/user-attachments/assets/401d396c-9204-410c-be3d-ea9f6f91bee7)
 
 
-# 目录
+【腾讯文档】美剧■经典影视合集+全网各种资源【持续更新建议收藏分享】.xlsx  
+[点击查看](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)  
+
+我做的网站，可以帮我收藏分享。更多资源请访问：[免费网盘资源分享](https://wangpan.online)
+
+
+
+
+# 李志歌曲目录
 
 ### 李志 - 勾三搭四
 
