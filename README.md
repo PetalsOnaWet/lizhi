@@ -4,10 +4,17 @@
 
 互联网上整合的李志的歌曲资源,应该是比较全的版本
 
+# 李志粉丝群
 
+tg群
 [李志粉丝群](https://t.me/lizhiniub)
 
 https://t.me/lizhiniub
+
+qq群：
+![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
+
+
 
 格式请自行转换
 
