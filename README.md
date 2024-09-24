@@ -6,12 +6,14 @@
 
 # 李志粉丝群
 
-tg群
+TG群
+
 [李志粉丝群](https://t.me/lizhiniub)
 
 https://t.me/lizhiniub
 
 qq群：
+
 ![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
 
 
