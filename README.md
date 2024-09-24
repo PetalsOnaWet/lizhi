@@ -4,26 +4,19 @@
 
 互联网上整合的李志的歌曲资源,应该是比较全的版本
 
-# 李志粉丝群
-
-TG群
-
-[李志粉丝群](https://t.me/lizhiniub)
-
-https://t.me/lizhiniub
-
-qq群：
-
-![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
 
 
 
 格式请自行转换
 
 
+
+
 可能会有一些资源重复，资源缺失，层级混乱的问题，请谅解。
 
+
 目录中没提及到的资源就是没有。
+
 
 喜欢的话可以 star 分享 以及赞赏~
 
@@ -70,6 +63,19 @@ https://n802.com/dir/29639387-40996593-54c6fe
 如果还没有满意的 可以去这里找一下
 
 https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
+
+
+# 李志粉丝群
+
+TG群
+
+[李志粉丝群](https://t.me/lizhiniub)
+
+https://t.me/lizhiniub
+
+qq群：
+
+![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
 
 ##
 
