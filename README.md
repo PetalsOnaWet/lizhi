@@ -47,7 +47,7 @@
 
 我用夸克网盘分享了「🎵李B志歌曲大全」，点击链接即可保存。打开「夸克APP」，无需下载在线播放视频，畅享原画5倍速，支持电视投屏。
 
-链接：[https://pan.quark.cn/s/03f22714622d](https://pan.quark.cn/s/fa2a03e8abcb)
+链接：[[https://pan.quark.cn/s/03f22714622d](https://pan.quark.cn/s/49b614616952)
 
 ## 李志的歌曲Google Drive 资源
 
