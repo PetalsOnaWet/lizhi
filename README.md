@@ -24,6 +24,24 @@
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
+# 李志粉丝群
+
+## 请注意：
+
+因为用了国内网盘做分享。TG 号和群组 我约等于实名了。所以我直接破罐子破摔，也搞了qq群。你们自己注意自身安全就行。
+速速进群，QQ到500人的时候 组织一波唱歌晚会。赞助商可以提前联系我了
+
+## TG群
+
+[李志粉丝群](https://t.me/lizhiniub)
+
+https://t.me/lizhiniub
+
+## qq群：
+
+![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
+
+##
 
 # 广告时间 
 
@@ -70,7 +88,7 @@ https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 ## 请注意：
 
 因为用了国内网盘做分享。TG 号和群组 我约等于实名了。所以我直接破罐子破摔，也搞了qq群。你们自己注意自身安全就行。
-速速进群，qq500人组织一波唱歌晚会。
+速速进群，QQ到500人的时候 组织一波唱歌晚会。赞助商可以提前联系我了
 
 ## TG群
 
