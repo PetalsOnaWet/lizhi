@@ -49,9 +49,9 @@ https://t.me/wangpank
 
 ## qq群：
 
-李志粉丝群:
 
-![李志粉丝群](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14) 夸克网盘资源群:![夸克网盘资源群](https://github.com/user-attachments/assets/b1305f89-39d1-4741-9e6e-bd1206a0700f)
+
+![李志粉丝群](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)![夸克网盘资源群](https://github.com/user-attachments/assets/b1305f89-39d1-4741-9e6e-bd1206a0700f)
 
   
 
