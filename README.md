@@ -49,8 +49,14 @@ https://t.me/wangpank
 
 ## qq群：
 
-![image](https://github.com/user-attachments/assets/676b3c3e-3b41-4713-bbe1-47cbf1f72a8f)
-![image](https://github.com/user-attachments/assets/5548b6f7-e714-47aa-b6bd-a9040fae119e)
+<div style="display: flex;">
+  <div style="margin-right: 10px;">
+    <img src="https://github.com/user-attachments/assets/676b3c3e-3b41-4713-bbe1-47cbf1f72a8f" alt="QQ群1" width="300" />
+  </div>
+  <div>
+    <img src="https://github.com/user-attachments/assets/5548b6f7-e714-47aa-b6bd-a9040fae119e" alt="QQ群2" width="300" />
+  </div>
+</div>
 
 
 
