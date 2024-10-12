@@ -46,6 +46,8 @@ https://t.me/lizhiniub
 
 https://t.me/wangpank
 
+美剧资源：[https://github.com/PetalsOnaWet/meiju/blob/main/README.md](https://github.com/PetalsOnaWet/meiju/blob/main/README.md)
+
 
 ## qq群：
 
