@@ -46,11 +46,15 @@ https://t.me/lizhiniub
 
 
 李志粉丝群:
-<div style="display: flex;">
-  <img src="https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14" alt="李志粉丝群" width="300" />
-  
+<br/><br/>
+<div style="display: flex; align-items: center;">
+  <div style="margin-right: 20px;">
+    <img src="https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14" alt="李志粉丝群" width="200" />
+  </div>
   夸克网盘资源群:
-  <img src="https://github.com/user-attachments/assets/b1305f89-39d1-4741-9e6e-bd1206a0700f" alt="夸克网盘资源群" width="300" />
+  <div>
+    <img src="https://github.com/user-attachments/assets/b1305f89-39d1-4741-9e6e-bd1206a0700f" alt="夸克网盘资源群" width="200" />
+  </div>
 </div>
 
 
