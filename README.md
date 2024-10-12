@@ -49,13 +49,8 @@ https://t.me/wangpank
 
 ## qq群：
 
-
-
-![李志粉丝群](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
-![夸克网盘资源群](https://github.com/user-attachments/assets/b1305f89-39d1-4741-9e6e-bd1206a0700f)
-
-
-  
+![image](https://github.com/user-attachments/assets/676b3c3e-3b41-4713-bbe1-47cbf1f72a8f)
+![image](https://github.com/user-attachments/assets/5548b6f7-e714-47aa-b6bd-a9040fae119e)
 
 
 
@@ -106,23 +101,6 @@ https://n802.com/dir/29639387-40996593-54c6fe
 
 https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 
-
-# 李志粉丝群
-
-## 请注意：
-
-因为用了国内网盘做分享。TG 号和群组 我约等于实名了。所以我直接破罐子破摔，也搞了qq群。你们自己注意自身安全就行。
-速速进群，QQ到500人的时候 组织一波唱歌晚会。赞助商可以提前联系我了
-
-## TG群
-
-[李志粉丝群](https://t.me/lizhiniub)
-
-https://t.me/lizhiniub
-
-## qq群：
-
-![image](https://github.com/user-attachments/assets/cb668a05-26eb-4635-b81f-8ed3eefdae14)
 
 ##
 
