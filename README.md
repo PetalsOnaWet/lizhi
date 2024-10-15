@@ -89,7 +89,7 @@ https://t.me/wangpank
 这部分一些禁曲 大概20个文件 实在分享不出来，也不能整体打zip包 不然不让分享。禁曲只能在谷歌云盘找了。这个链接挂了 及时通知我。我会立刻想办法补
 
 
-链接：[https://pan.quark.cn/s/4050c1b104a0](https://pan.quark.cn/s/4050c1b104a0)
+链接：[https://pan.quark.cn/s/4050c1b104a0](https://pan.quark.cn/s/078eafd744b3)
 
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
