@@ -66,7 +66,7 @@ https://t.me/wangpank
 ##
 
 # 广告时间 
-<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">币安注册，交易加密货币，获取奖励</a>
+<a href="https://accounts.binance.com/register?ref=MSSFQ18X" target="_top">注册币安，交易加密货币，获取奖励，手续费20%自动返还</a>
 
 <a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">注册欧意，交易加密货币，获取100美金新用户奖励</a>
 
