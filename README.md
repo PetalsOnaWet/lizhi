@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/c1483393-085c-42e9-ad00-65bfd503c77b)# 李志歌曲大全
+
 ![李志歌曲大全](lizhi.jpeg)
 
 
