@@ -1,4 +1,4 @@
-# 李志歌曲大全
+![image](https://github.com/user-attachments/assets/c1483393-085c-42e9-ad00-65bfd503c77b)# 李志歌曲大全
 ![李志歌曲大全](lizhi.jpeg)
 
 
@@ -66,7 +66,8 @@ https://t.me/wangpank
 ##
 
 # 广告时间 
-
+<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">币安注册，交易加密货币，获取奖励</a>
+<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">注册欧意，交易加密货币，获取100美金新用户奖励</a>
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
 
@@ -74,14 +75,10 @@ https://t.me/wangpank
 
 <a href="https://namecheap.pxf.io/PyXNeR" target="_top">namecheap 域名注册 最便宜的域名 </a>
 
-<a href="https://digitalocean.pxf.io/xkDrAk" target="_top">可以白嫖200$ 遗憾的是只能一个月 </a>
-
-
-<a href="https://www.anrdoezrs.net/click-100985796-15699315" target="_top">Wordpress 综合插件:Managed WordPress Hosting + Elementor Website Builder +Free Add-Ons + 24/7 Support</a>
 
 <a href="https://www.tkqlhce.com/click-100985796-14349300" target="_top">好用的梯子，ExpressVPN,30天退款，懂的都懂，ExpressVPN</a>
 
-<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">NordPass 密码管理器</a>
+
 
 # 下载地址
 ## 李志的歌曲夸克网盘资源
