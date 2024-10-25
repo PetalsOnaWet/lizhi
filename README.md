@@ -68,6 +68,7 @@ https://t.me/wangpank
 # 下载地址
 ## 李志的歌曲夸克网盘资源
 
+链接：[https://pan.quark.cn/s/49b614616952](https://pan.quark.cn/s/49b614616952)
 
 因为懂得都懂的原因，很难分享出来，也不能整体打zip包，由于国内管控特别严重，我只能分享三天，如果你发现网盘链接失效了，可以赞赏我30元请我喝杯咖啡，备注来意加我微信yilongaff
 
@@ -76,9 +77,11 @@ https://t.me/wangpank
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
-点击这里了解我：[壹龙](https://ylaff.com/)
 
-链接：[https://pan.quark.cn/s/49b614616952](https://pan.quark.cn/s/49b614616952)
+
+
+
+点击这里了解我：[壹龙](https://ylaff.com/)
 
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
