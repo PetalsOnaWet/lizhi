@@ -20,9 +20,7 @@
 
 喜欢的话可以 star 分享 以及赞赏~
 
-可以请我喝杯咖啡呀
 
-<img src="zanshang.jpg" width = 40% height = 30% />
 
 # 李志粉丝群
 
