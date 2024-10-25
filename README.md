@@ -76,6 +76,7 @@ https://t.me/wangpank
 
 <img src="zanshang.jpg" width = 40% height = 30% />
 
+点击这里了解我：[壹龙](https://ylaff.com/)
 
 链接：[https://pan.quark.cn/s/49b614616952](https://pan.quark.cn/s/49b614616952)
 
@@ -500,3 +501,5 @@ https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
   - 02 李志 - 黑色信封.flac
   - 01 李志 - 事情要从 1995 年说起.flac
   - 09 李志 - 被禁忌的游戏.flac
+
+
