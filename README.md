@@ -63,31 +63,21 @@ https://t.me/wangpank
 
 
 
-##
-
-# 广告时间 
-<a href="https://accounts.binance.com/register?ref=MSSFQ18X" target="_top">注册币安，交易加密货币，获取奖励，手续费20%自动返还</a>
-
-<a href="https://www.anrdoezrs.net/click-100985796-15240564" target="_top">注册欧意，交易加密货币，获取100美金新用户奖励</a>
-
-[美剧■经典影视合集 【持续更新建议收藏分享】](https://pan.quark.cn/s/37e4b2ea3ef2)
-
-<a href="https://hostinger.sjv.io/xk76Rx" target="_top">hostinger 很不错的vps我正在使用 可以放100个网站</a>
-
-<a href="https://namecheap.pxf.io/PyXNeR" target="_top">namecheap 域名注册 最便宜的域名 </a>
-
-
-<a href="https://www.tkqlhce.com/click-100985796-14349300" target="_top">好用的梯子，ExpressVPN,30天退款，懂的都懂，ExpressVPN</a>
-
 
 
 # 下载地址
 ## 李志的歌曲夸克网盘资源
 
-这部分一些禁曲 大概20个文件 实在分享不出来，也不能整体打zip包 不然不让分享。禁曲只能在谷歌云盘找了。这个链接挂了 及时通知我。我会立刻想办法补
+
+因为懂得都懂的原因，很难分享出来，也不能整体打zip包，由于国内管控特别严重，我只能分享三天，如果你发现网盘链接失效了，可以赞赏我30元请我喝杯咖啡，备注来意加我微信yilongaff
 
 
-链接：[https://pan.quark.cn/s/4050c1b104a0](https://pan.quark.cn/s/078eafd744b3)
+我会发你新的资源，并且指导你完成一个每天用时很少 回报月2k的副业项目
+
+<img src="zanshang.jpg" width = 40% height = 30% />
+
+
+链接：[https://pan.quark.cn/s/49b614616952](https://pan.quark.cn/s/49b614616952)
 
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
