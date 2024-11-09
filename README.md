@@ -22,43 +22,6 @@
 
 
 
-# 李志粉丝群
-
-## 请注意：
-
-因为用了国内网盘做分享。TG 号和群组 我约等于实名了。所以我直接破罐子破摔，也搞了qq群。你们自己注意自身安全就行。
-
-丑话说在前头 我知道大家心里都有一口气，但是本群依旧是🈲zz 和色情，你可以说我的是懦夫或者是犬儒，无所谓。
-
-毕竟我要为我自己的安全着想，到时候你当英雄了，喝茶的是我，这不是傻逼是什么，你觉得应该无畏冲锋，请你自己去。别害别人。话说的很直白，看不惯我的可以自己关闭页面了。
-
-速速进群，QQ到500人的时候 组织一波唱歌晚会。赞助商可以提前联系我了
-
-## TG群
-
-[李志粉丝群](https://t.me/lizhiniub)
-
-https://t.me/lizhiniub
-
-[夸克资源群](https://t.me/wangpank)
-
-https://t.me/wangpank
-
-美剧资源：[https://github.com/PetalsOnaWet/meiju/blob/main/README.md](https://github.com/PetalsOnaWet/meiju/blob/main/README.md)
-
-
-## qq群：
-
-<div style="display: flex;">
-  <div style="margin-right: 10px;">
-    <img src="https://github.com/user-attachments/assets/676b3c3e-3b41-4713-bbe1-47cbf1f72a8f" alt="QQ群1" width="300" />
-  </div>
-  <div>
-    <img src="https://github.com/user-attachments/assets/5548b6f7-e714-47aa-b6bd-a9040fae119e" alt="QQ群2" width="300" />
-  </div>
-</div>
-
-
 
 
 
@@ -68,13 +31,12 @@ https://t.me/wangpank
 
 链接：[https://pan.quark.cn/s/49b614616952](https://pan.quark.cn/s/49b614616952)
 
-因为懂得都懂的原因，很难分享出来，也不能整体打zip包，由于国内管控特别严重，我只能分享三天，如果你发现网盘链接失效了，可以赞赏我30元请我喝杯咖啡，备注来意！！！否则不通过！！！加我微信yilongaff
+因为懂得都懂的原因，很难分享出来，也不能整体打zip包，由于国内管控特别严重，我只分享三天，如果你发现网盘链接失效了，可以赞赏我30元请我喝杯咖啡，备注来意！！！否则不通过！！！加我微信yilongaff
 
 
 我会发你新的资源，并且指导你完成一个每天用时很少 回报月2k的副业项目。当然你可以选择下面的谷歌云。
 
 <img src="zanshang.jpg" width = 40% height = 30% />
-
 
 
 
@@ -121,7 +83,7 @@ https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 【腾讯文档】美剧■经典影视合集+全网各种资源【持续更新建议收藏分享】.xlsx  
 [点击查看](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)  
 
-我做的网站，可以帮我收藏分享。更多资源请访问：[免费网盘资源分享](https://wangpan.online)
+
 
 
 
