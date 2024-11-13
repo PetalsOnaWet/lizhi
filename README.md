@@ -46,6 +46,8 @@
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
 
+[加密货币信息汇总](https://github.com/PetalsOnaWet/cryptobtc_info)
+
 ## 李志的歌曲Google Drive 资源
 
 https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
