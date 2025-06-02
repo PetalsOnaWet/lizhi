@@ -48,6 +48,10 @@
 
 [加密货币信息汇总](https://github.com/PetalsOnaWet/cryptobtc_info)
 
+
+[Unblocked Games 6x](https://sites.google.com/view/unblockedgames6xx)
+
+
 ## 李志的歌曲Google Drive 资源
 
 https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
