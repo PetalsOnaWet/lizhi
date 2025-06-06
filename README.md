@@ -49,7 +49,7 @@
 [加密货币信息汇总](https://github.com/PetalsOnaWet/cryptobtc_info)
 
 
-[Unblocked Games 6x](https://sites.google.com/view/unblockedgames6xx)
+[Unblocked Games 76](https://unblockedgames766.com/)
 
 
 ## 李志的歌曲Google Drive 资源
