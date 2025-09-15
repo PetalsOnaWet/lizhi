@@ -31,7 +31,7 @@
 
 
 
-因为懂得都懂的原因，很难分享出来，也不能整体打zip包，由于国内管控特别严重，我只分享三天，如果你发现网盘链接失效了，可以赞赏我请我喝杯咖啡
+https://pan.quark.cn/s/078eafd744b3
 
 
 
@@ -46,7 +46,7 @@
 
 [美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
 
-[使用币安购买比特币](https://accounts.maxweb.mobi/register?ref=1095031210)
+[使用币安购买比特币](https://accounts.maxweb.academy/register?ref=1095031210)
 
 
 
