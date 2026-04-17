@@ -47,25 +47,6 @@ https://pan.quark.cn/s/078eafd744b3
 
 
 
-
-
-
-
-[使用币安购买比特币，享受20%手续费自动返还](https://accounts.maxweb.academy/register?ref=GITHB)
-
-
-
-
-
-
-
-## 李志的歌曲 城通网盘资源 （可能和谐了 谁验证下告诉我
-
-https://n802.com/dir/29639387-40996593-54c6fe
-
-
-
-
 ##
 
 # 关于版权问题
@@ -81,7 +62,7 @@ https://n802.com/dir/29639387-40996593-54c6fe
 我整理了一部分全网资源，包括美剧/短剧/电影/电视剧/小说/书籍/破解软件/考研考公资料/动漫动画这些网盘资源，需要的自取
 
 
-![image](https://github.com/user-attachments/assets/401d396c-9204-410c-be3d-ea9f6f91bee7)
+
 
 
 
