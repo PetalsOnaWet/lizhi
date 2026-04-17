@@ -27,6 +27,12 @@
 
 
 # 下载地址
+
+
+## 李志的歌曲Google Drive 资源
+
+https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
+
 ## 李志的歌曲夸克网盘资源
 
 
@@ -52,9 +58,6 @@ https://pan.quark.cn/s/078eafd744b3
 
 
 
-## 李志的歌曲Google Drive 资源
-
-https://drive.google.com/drive/folders/1Qrub6z-COxiwRVz3gP6JcTIYQpBEU6dj?usp=drive_link
 
 
 ## 李志的歌曲 城通网盘资源 （可能和谐了 谁验证下告诉我
