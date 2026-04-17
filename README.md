@@ -50,7 +50,6 @@ https://pan.quark.cn/s/078eafd744b3
 
 
 
-[美剧■经典影视合集+全网各种资源+ 考公考研+动漫电影+破解软件+简历模板 【持续更新建议收藏分享】](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)
 
 [使用币安购买比特币，享受20%手续费自动返还](https://accounts.maxweb.academy/register?ref=GITHB)
 
@@ -65,10 +64,6 @@ https://pan.quark.cn/s/078eafd744b3
 https://n802.com/dir/29639387-40996593-54c6fe
 
 
-
-如果还没有满意的 可以去这里找一下
-
-https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 
 
 ##
@@ -87,12 +82,6 @@ https://github.com/PetalsOnaWet/lizhi/issues?q=+label%3A%E8%B5%84%E6%BA%90+
 
 
 ![image](https://github.com/user-attachments/assets/401d396c-9204-410c-be3d-ea9f6f91bee7)
-
-
-【腾讯文档】美剧■经典影视合集+全网各种资源【持续更新建议收藏分享】.xlsx  
-[点击查看](https://docs.qq.com/sheet/DRnNTaktza0FBVEFr?tab=000001)  
-
-
 
 
 
