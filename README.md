@@ -1,4 +1,4 @@
-
+﻿
 ![李志歌曲大全](lizhi.jpeg)
 
 
@@ -48,6 +48,38 @@ https://pan.quark.cn/s/078eafd744b3
 
 
 ##
+
+# 内嵌歌词版
+
+前段时间，一项“伟大”的工作基本收尾：为李志的所有歌曲加上内嵌歌词，并将曲库上传至 Google Drive：
+
+https://drive.google.com/drive/folders/1Ykeigd5vNgf8SNRawTd1qiCYcqStSOm5?usp=sharing
+
+夸克云盘：
+https://pan.quark.cn/s/195465b2ee62
+
+该版本是独立的曲库，不影响上方原版资源的下载。
+
+整理者：Camefor ｜ GitHub 主页：https://github.com/Camefor/ ｜ 邮箱：xuehaq@gmail.com
+
+## 来源与致谢
+
+- **原始项目**：[PetalsOnaWet/lizhi](https://github.com/PetalsOnaWet/lizhi)，感谢作者最初的整理。
+- **歌曲资源**：由热心网友整理，详见 [issues/57](https://github.com/PetalsOnaWet/lizhi/issues/57)，特别感谢 [@sansonKAMA](https://github.com/sansonKAMA)。
+
+本内嵌歌词版是在上述整理成果的基础上继续完成的。
+
+## 制作方式
+
+使用本地歌词处理程序 [MusicLyricsSuite](https://github.com/Camefor/MusicLyricsSuite)，完成从下载歌词、清洗歌词到把 `.lrc` 歌词嵌入音频文件的整个流程；程序未匹配到的歌曲，再由人工逐首打时间轴。
+
+## 初衷
+
+希望能在手机上，用 Poweramp、Oto Music 这类纯离线音乐播放器，纯粹地听李志。歌词嵌入音频文件后，播放器无需联网，也不依赖额外的歌词文件，即可显示滚动歌词。
+
+## 反馈
+
+一部分歌曲是现场版，即兴的“B 言 B 语”比较多，吐字混乱，难免有听不清。时间轴对不上或歌词错误的地方。欢迎提 issue 指正，也可通过上方联系方式反馈，后续会慢慢完善。
 
 # 关于版权问题
 
